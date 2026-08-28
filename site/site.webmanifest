@@ -1,0 +1,27 @@
+{
+  "name": "Cainsville Tree Service",
+  "short_name": "Cainsville Tree",
+  "description": "Tree trimming, tree removal, dead branch removal and emergency storm damage cleanup in Cainsville, Ontario.",
+  "start_url": "/",
+  "display": "browser",
+  "background_color": "#ffffff",
+  "theme_color": "#23282B",
+  "icons": [
+    {
+      "src": "images/icon-192.png",
+      "sizes": "192x192",
+      "type": "image/png"
+    },
+    {
+      "src": "images/icon-512.png",
+      "sizes": "512x512",
+      "type": "image/png"
+    },
+    {
+      "src": "images/icon-512.png",
+      "sizes": "512x512",
+      "type": "image/png",
+      "purpose": "maskable"
+    }
+  ]
+}
