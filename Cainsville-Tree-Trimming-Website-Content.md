@@ -46,7 +46,7 @@ The boundary does not follow anything you can see from the street, so your neigh
 
 Water and wastewater construction is scheduled east of Cainsville between 2027 and 2029. A trench dug beside a tree cuts the roots along one side of it.
 
-A tree already standing on a shallow plate has very little to spare. If work is planned near a tree you want to keep, book the tree trimming beforehand, while there is still room to work and the tree still has its full anchorage.
+A tree already standing on a shallow plate has very little to spare. If work is planned near a tree you want to keep, book the [tree trimming](https://bedfordparktreeservice.com/) beforehand, while there is still room to work and the tree still has its full anchorage.
 
 ## Serving Cainsville And East Brantford
 
@@ -108,7 +108,7 @@ Call (226) 546-3847.
 
 A tree on shallow soil is held by a wide flat root plate rather than deep anchoring roots. The crown acts as a lever against that plate every time the wind blows.
 
-Reducing the crown shortens the lever. On ground like this, tree trimming and pruning does more for stability than anything else available, and the effect lasts for several years.
+Reducing the crown shortens the lever. On ground like this, [tree trimming](https://churchillmeadowstreeservice.com/) and pruning does more for stability than anything else available, and the effect lasts for several years.
 
 ## How Much Of A Crown Can Be Removed?
 
@@ -162,7 +162,7 @@ Call (226) 546-3847.
 
 Long before a branch comes down, the tree has already cut off its supply. What follows is several seasons of drying, after which the wood is brittle enough to snap under its own weight.
 
-Arranging dead branch removal beforehand is both cheaper and safer than letting the tree decide the timing. Dead branch removal on a schedule always costs less than an emergency.
+Arranging [dead branch removal](https://willowdaletreeservice.com/) beforehand is both cheaper and safer than letting the tree decide the timing. Dead branch removal on a schedule always costs less than an emergency.
 
 ## Why Is There So Much Dead Wood On Shallow Soil?
 
@@ -226,7 +226,7 @@ Call (226) 546-3847.
 
 ## Why Do Whole Trees Come Down Here?
 
-Most emergency storm damage cleanup in this area involves trees that have tipped over rather than snapped. The shallow sand over clay gives roots nothing to grip, so they form a wide flat plate instead.
+Most emergency [storm damage](https://lawrenceparktreeservice.com/) cleanup in this area involves trees that have tipped over rather than snapped. The shallow sand over clay gives roots nothing to grip, so they form a wide flat plate instead.
 
 When the ground is soft and the wind is strong, that plate lifts out whole. The trunk is usually sound, which surprises owners who assumed the tree was healthy.
 
@@ -447,7 +447,7 @@ Call (226) 546-3847.
 
 ## How Does Stump Grinding Work?
 
-The machine used for stump grinding and removal carries a spinning wheel set with hardened teeth, which reduces the stump to chips. It cuts downward and across in passes until nothing remains above grade.
+The machine used for [stump grinding](https://victoriavillagetreeservice.com/) and removal carries a spinning wheel set with hardened teeth, which reduces the stump to chips. It cuts downward and across in passes until nothing remains above grade.
 
 Unless you ask otherwise, the chips stay in the cavity. Most people leave them there as fill and finish the surface with topsoil.
 
